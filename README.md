@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Python**
 
-- 📫 How to reach me **Discord: Mai Sakurajima#0348**
+- 📫 How to reach me **Discord: Saki Saki#0348**
 
 - ⚡ Fun fact **I Like Animes**
 
