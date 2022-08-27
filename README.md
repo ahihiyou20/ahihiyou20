@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Python**
 
-- 📫 How to reach me **Discord: Chisato Nishikigi#0348**
+- 📫 How to reach me **Discord: Chisato Nishikigi#2309**
 
 - ⚡ Fun fact **I Like Animes**
 
